@@ -41,3 +41,27 @@ This unofficial mod menu provides players with various quality-of-life improveme
 - **Hotkeys**:
   - `F10` Toggle menu
   - `INSERT` Quick save config
+
+##
+
+seo(dont read this):
+schedule i
+schedule 1 cheats
+schedule 1 trainer
+schedule i cheats
+schedule i trainer
+schedule i cheat engine
+schedule 1 cheat engine
+schedule i mod menu
+schedule i cheat
+schedule i cheat table
+schedule i hacks
+schedule i cheat menu
+schedule i cheat engine config
+schedule i hack menu
+schedule i mods
+schedule i how to install mods
+schedule i hack
+schedule i unlimited money
+schedule i modding
+schedule i dupe tutorial
